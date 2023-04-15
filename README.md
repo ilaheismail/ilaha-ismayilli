@@ -1,1 +1,0 @@
-# ilaha-ismayilli
